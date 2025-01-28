@@ -1,1 +1,1 @@
-[Watch the video](https://github.com/MasihMoafi/My-freelance-website/main/Video.mp4)
+[Watch the video](https://github.com/MasihMoafi/My-freelance-website/Video.mp4)
